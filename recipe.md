@@ -1,0 +1,2 @@
+#### recipe
+First take a fresh potato and boil it .Then take it and peel the potato and give a shape of french fries .After that take the potato and keep it in the mixture of chili flacks and origeno , and ater 5 min fry it in hot oil for 2 min . Then tae a stainer and strain them and serve it with tomato ketchup .
